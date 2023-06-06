@@ -1,1 +1,1 @@
-only time to uodate from GitHub
+only time to update from GitHub
